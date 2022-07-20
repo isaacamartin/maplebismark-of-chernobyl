@@ -1,2 +1,2 @@
 # maplebismark-of-chernobyl
-Does the stuff keeps it live
+Does the stuff; keeps it live!
